@@ -1,1 +1,1 @@
-# NAMIgoodbye
+https://kimhywu.github.io/NAMIgoodbye/
